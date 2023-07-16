@@ -1,2 +1,1 @@
-# nodejs-hello
-Application for learning Node.js app
+Node.js app
