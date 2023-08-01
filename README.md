@@ -1,1 +1,1 @@
-identity had poor is business least attention shoe history peace brain hunt like construction settlers
+born gone eventually tax income nervous double real mountain pitch origin elephant zero addition pole
