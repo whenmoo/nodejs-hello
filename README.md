@@ -1,1 +1,1 @@
-accept statement cut fast skin face thick blew valuable fat consist prove failed monkey mice
+raw bright stove adjective joined also income border fall organization ill detail dish rhyme chicken
