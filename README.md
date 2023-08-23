@@ -1,1 +1,1 @@
-to television halfway trade composed addition affect horn split care grow draw shape wool curve
+has color nature doll bend powerful swimming went dog below pencil agree fix factor break
