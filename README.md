@@ -1,1 +1,1 @@
-familiar finally classroom follow nearly wish bell magic tears strike hunt write traffic law chance
+visitor black up accident store street practice just finest oldest room weight ordinary neck log
