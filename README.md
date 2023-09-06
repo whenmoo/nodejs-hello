@@ -1,1 +1,1 @@
-large stepped partly lamp what religious character wait current black adjective bet pleasure plenty for
+equator weigh situation ball zero needs month doing establish passage below death essential scale about
