@@ -1,1 +1,1 @@
-later signal construction save military group pleasant thrown coal horse consist differ border young mud
+vowel sea select arrive street apartment ring fine alphabet tongue vowel ring have date quarter
