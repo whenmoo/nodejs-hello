@@ -1,1 +1,1 @@
-vowel sea select arrive street apartment ring fine alphabet tongue vowel ring have date quarter
+suppose laugh pool range fallen finger bite poet poetry accept empty layers worried voice ear
