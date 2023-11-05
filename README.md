@@ -1,1 +1,1 @@
-roll shine lower teach rule year tone sign air chair bee forty when become wet
+stranger vote floor angry its lack machinery secret faster bone running reach table voice court
