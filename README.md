@@ -1,1 +1,1 @@
-shut compass his just boy location wear rule gave exercise call roof word national fill
+knowledge tax live method available dust party drove brown familiar talk dozen opportunity donkey silence
