@@ -1,1 +1,1 @@
-fear gone signal final nation get official news excellent smaller winter plane branch consist else
+learn direct arm statement start war powerful factor hope national thousand grow money its average
