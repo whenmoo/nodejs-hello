@@ -1,1 +1,1 @@
-learn direct arm statement start war powerful factor hope national thousand grow money its average
+numeral leader due refer shelter two after minerals stems because become factor wall fuel human
