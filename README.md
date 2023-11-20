@@ -1,1 +1,1 @@
-paper police strong finish angle rate were very kill anyone thought butter diameter built guess
+mighty shadow adjective stop there operation river earn take broad hard business handle stock not
