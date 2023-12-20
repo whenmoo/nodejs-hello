@@ -1,1 +1,1 @@
-voice beyond piece wait war drop transportation seat will feature himself stretch across ability ago
+zero whether heart plate distant seen lungs become nuts lift settle closely ruler dead rays
