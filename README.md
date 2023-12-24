@@ -1,1 +1,1 @@
-cold lose atmosphere especially weigh solar gather planning substance here perfect everywhere ground gravity already
+just fall lack tree far dry brass would oldest garage free nest win voice prize
