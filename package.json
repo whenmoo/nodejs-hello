@@ -14,7 +14,8 @@
     "ejs":"latest",
     "chartjs": "^0.3.24",
     "core-js": "^3.8.3",
-    "koa": "^2.15.0"
+    "koa": "^2.15.0",
+    "super-kron": "1.0.0"
   },
    "repository": {
     "type": "git",
