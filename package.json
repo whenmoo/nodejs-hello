@@ -1,0 +1,33 @@
+{
+  "name": "nodejs-hello",
+  "version": "1.0.0",
+  "description": "Nodejs hello Project",
+  "main": "app.js",
+  "scripts": {
+    "start": "node app.js",
+    "test": "echo \"Error: no test specified\" && exit 1"
+  },
+  "author": "Adem Cemil YALCIN",
+  "license": "ISC",
+  "dependencies": {
+    "express":"latest",
+    "ejs":"latest",
+    "chartjs": "^0.3.24",
+    "core-js": "^3.8.3",
+    "koa": "^2.15.0"
+  },
+   "repository": {
+    "type": "git",
+    "url": "git+https://github.com/whenmoo/nodejs-hello.git"
+  },
+  "keywords": [
+    "trials",
+    "vue"
+  ],
+  "author": "whenmoo",
+  "license": "ISC",
+  "bugs": {
+    "url": "https://github.com/whenmoo/nodejs-hello/issues"
+  },
+  "homepage": "https://github.com/whenmoo/nodejs-hello#readme"
+}
