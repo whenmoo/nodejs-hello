@@ -1,1 +1,1 @@
-voyage fighting carried shade occur smell next top basis correctly telephone price nine purpose mirror
+care taste near oldest save love gentle race clothes become suppose environment roar while good
